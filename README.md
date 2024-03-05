@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @nextronaut
+- 👀 I’m interested in you
+- 🌱 I’m currently learning everything
+- 💞️ I’m looking to collaborate on anything that can help you.
+- 📫 How to reach me superelitemariodev1220@gmail.com
+- 😄 Pronouns: he/him
